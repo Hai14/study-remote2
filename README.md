@@ -1,1 +1,0 @@
-# stydy-remote2
